@@ -1,3 +1,5 @@
+![logo](https://wallpapers.com/images/hd/coding-background-5z97ezjr9j4mq9be.jpg)
+
 <h1 align="center">Hi 👋, I'm Gayathri Rayavarapu</h1>
 <h3 align="center">An ambitious graduate with master's degree in IT</h3>
 
