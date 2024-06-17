@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **gayathrirayavarapu14@gmail.com**
 
-- ⚡ Fun fact **I think I am funny**
+- ⚡ Fun fact **you know what?? emojis are created to show emotions!! but they became an integral part of social life now-a-days...(^^)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
